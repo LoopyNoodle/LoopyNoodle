@@ -4,6 +4,4 @@
 
 🌱 I’m interested in topics ranging from cosmology to chaos and dynamical systems.
 
-📫 How to reach me: sahaana.vijay_ug25@ashoka.edu.in
-
 ⚡ Did you know snails have teeth? Yeah, me neither.
